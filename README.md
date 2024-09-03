@@ -1,2 +1,12 @@
 # SQL-ASSIGNMENT-4
 ![Screenshot 2024-09-03 120345](https://github.com/user-attachments/assets/841e87cd-168e-4d94-aadd-796aca388907)
+![Screenshot 2024-09-03 120345](https://github.com/user-attachments/assets/953fe3dc-1c5d-4a1b-b78a-f9567e3fb41e)
+![Screenshot 2024-09-03 120345 - Copy (2) - Copy](https://github.com/user-attachments/assets/e649b206-f8a4-431b-a46a-42baed2b1ec1)
+![Screenshot 2024-09-03 120345 - Copy (2)](https://github.com/user-attachments/assets/12916fbb-9d3f-46f2-ada1-786f169b973b)
+![Screenshot 2024-09-03 120345 - Copy (3) - Copy](https://github.com/user-attachments/assets/781b12c9-1622-4ab7-a8a0-3703588527f1)
+![Screenshot 2024-09-03 120345 - Copy (3)](https://github.com/user-attachments/assets/f79129c9-140d-4c70-9135-22f6906e7003)
+![Screenshot 2024-09-03 120345 - Copy (6) - Copy](https://github.com/user-attachments/assets/0d4c17c9-ba29-4e2f-8daa-6d4b6e6524b7)
+![Screenshot 2024-09-03 120345 - Copy (6)](https://github.com/user-attachments/assets/a3a8be29-7955-4dbd-9b21-111068bbfbfb)
+![Screenshot 2024-09-03 120345 - Copy (7) - Copy](https://github.com/user-attachments/assets/d3e71288-2772-4b6f-960c-aabbe490e13b)
+![Screenshot 2024-09-03 120345 - Copy (7)](https://github.com/user-attachments/assets/5e5080a8-e586-499f-9958-1b5002be471e)
+![Uploading Screenshot 2024-09-03 120345 - Copy (8) - Copy.png…]()
